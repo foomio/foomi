@@ -1,6 +1,6 @@
 - 👋 Hi there!
 - 👀 I’m interested in cloud technology, web dev, & game development.
-- 📫 How to reach me: foomi.business@gmail.com ☀
+- 📫 How to reach me: kat3.developer@gmail.com ☀
 
 
 
